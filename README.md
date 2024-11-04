@@ -1,4 +1,4 @@
-Name: Ahmad Dynee Asyraff Bin Ahamd Azyzee
+Name: Ahmad Dynee Asyraff Bin Ahmad Azyzee
 Date of birth: 15/6/2001
 Education: Universiti Teknikal Malaysia Melaka (UTeM)
 Certifications:
